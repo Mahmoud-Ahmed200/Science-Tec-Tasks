@@ -1,1 +1,0 @@
-# Science-Tec-Tasks
